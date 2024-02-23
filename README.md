@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @fbriansendoh
+- 👋 Hi, I’m Brian
 - 👀 I’m interested in learning 
 - 🌱 I’m currently learning Programming with Scratch
 - 💞️ I’m looking to collaborate with you
