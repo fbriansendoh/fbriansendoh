@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning Everything
 - 💞️ I’m looking to collaborate with you
 - 📫 How to reach me using telepathy 
-- 😄 Pronouns: He/Him
+- 😄 I loved greenery and rain
 - ⚡ Fun fact: Single is new term of happiness 
 
 <!---
