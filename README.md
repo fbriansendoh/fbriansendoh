@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning Everything
 - 💞️ I’m looking to collaborate with You
 - 📫 Reach me using Telepathy 😂
-- 😄 I loved Greenery and the sound of Rain
+- 😄 I loved Greenery and the sound of the Rain
 - ⚡ Fun fact: Single is new term of happiness 
 
 <!---
